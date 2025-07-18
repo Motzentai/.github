@@ -26,7 +26,7 @@ Both pronunciations are acceptable and reflect different nuances of the name's i
 
 Together, *Motzentai* symbolizes a disciplined force moving with purpose and control.
 
-[𐌺𐌰𐌽𐌽𐌾𐌰𐌽](kannjan.org) philosophy.
+[𐌺𐌰𐌽𐌽𐌾𐌰𐌽](https://kannjan.org) philosophy.
 
 ---
 
